@@ -1,4 +1,4 @@
-# Premium
+# FREE 🔥🔥🔥 💯
 
 **Ini Adalah Script Untuk Crack Akun Instagram
 
